@@ -1,0 +1,1 @@
+# Quali_Edutec_area
